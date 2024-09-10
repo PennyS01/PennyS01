@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PennyS01
+- 👀 I’m interested in pokemon, cute videogames, and programming
+- 🌱 I’m currently learning several different programming languages
+- 💞️ I’m looking to collaborate on anything
+- 📫 I can be reached via email at pennystavros01@gmail.com
+- 😄 Pronouns: she/they
